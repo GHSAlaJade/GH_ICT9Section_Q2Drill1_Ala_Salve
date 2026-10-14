@@ -1,1 +1,0 @@
-# GH_ICT9Section_Q2Drill1_Ala_Salve
